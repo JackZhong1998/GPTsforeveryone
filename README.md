@@ -40,4 +40,7 @@ Assistant: Bazinga
 ## Prompt of 2000+ Cracked GPTs
 
 ## Methods to Profit from GPTs
+### The detailed tutorial is as follows:
 https://x.com/JackZhong1998/status/1748230421429776734?s=20
+### Click on this GPTs
+https://chat.openai.com/g/g-KkQlmI2En-angry-girlfriend-simulator
